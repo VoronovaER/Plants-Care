@@ -1,6 +1,6 @@
 # Воронова Евгения - "Plants Сare"
 
-### Группа: 10 - М
+### Группа: 11 - М
 ### Электронная почта: ervoronova@edu.hse.ru
 ### VK: www.vk.com/voronovaer
 
